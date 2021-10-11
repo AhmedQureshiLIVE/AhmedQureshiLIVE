@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @AhmedQureshiLIVE
-- 👀 I’m interested in Computer Science
-- 🌱 I’m currently working on a Web Browser
-- 💞️ I’m looking to collaborate on Worklow
-- 📫 Email Contact: Ahmed.Qureshi@usa.com
+- 💎 This is the Fan Page of @AhmedQureshiCEO
+- 📊 Be sure to be active on this page
+- 📪 Email Contact: Ahmed.Qureshi@usa.com
